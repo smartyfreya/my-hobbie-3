@@ -1,2 +1,2 @@
-# my-hobbie-3
+# my-hobbie-freya
 This is about one of my hobbys:)
